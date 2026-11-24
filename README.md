@@ -11,7 +11,7 @@ I am Innygr online, I am the typa guy to have 500 side projects all stacking on 
 - 👯 I’m looking to collaborate on 
 - 🤔 I’m looking for help with Mission Link // mOS (please like make an issue introducing yourself before doing anything)
 - 💬 Ask me about Team Blacklight
-- 📫 How to reach me: yeah no, i don't get a public email (yet)
+- 📫 How to reach me: try innygr@teamblacklight.ca
 - 😄 Pronouns: He/Him/They/Them
 - ⚡ Fun fact: [insert celestan description here]
 
